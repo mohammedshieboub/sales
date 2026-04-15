@@ -6,8 +6,13 @@ sales analysis is the process of studying sales data to understand performance a
 Mohamed Ibrahim 
 
 Moaz Mohamed
+
 Mohamed adel
+
 Nada emad
+
 Manar Mohamed 
+
 Asmaa Mohamed 
+
 Instructor/Karim Bakly 
